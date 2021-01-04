@@ -1,0 +1,47 @@
+---
+title: Photos
+description: Knights of Columbus - Kingston Mills
+layout: default
+---
+
+*If you object to your photo being included, please contact the web-knight immediately*
+
+- [2020 - Feb - Council Pancake Breakfast](https://photos.google.com/share/AF1QipOeFjTImWcqRs8TI8k0Ze4MixrJhhbetRCbwWf6317CHf9Oczbzjfm0OUJvWngXtw?key=dE5nUDJ1ZlRkZmdfcGdaS1FJcFl6NUR6TzdUOWln)
+- [2019 - Nov - Family Breakfast](https://photos.google.com/share/AF1QipPzek5K6Ewd2boCvA6J7n3otlzhKUYT4plsQNuWbMIfaMu_s7YcjGlxnTshynoOxw?key=N3lVd2lFM1FnWUxhNWdjOFg0NHRVVVQ1NklvQ1Vn)
+- [2016 - Feb - Pancake Breakfast](https://photos.google.com/share/AF1QipPCNMmfQi1YPdbxl7-vOcZ3zmQBgmR8A0YSQb6a_0lbqRm0KWx-JfpVTfTh5U88IA?key=alViN0Z6YU5jeXU5YUpZWHNaQUdaQkJzZXg4Mndn)
+- [2016 - Jan - Special Olympics Flag Relay](https://photos.google.com/share/AF1QipOrsUNCR1bfcp7s36ZeAfuSGJYuh_S1PRUt8UJcSPRvRwgzKhDgLBf-Uo7R8yl2Pg?key=MEZmZVN0Rm1SNThjN0JwTVBjRlhhRkNzOVVBMV9B)
+- [2015 - Sep - Soccer Challenge](https://photos.app.goo.gl/k4xjXv8BdMed1xh86)
+- [2015 - Jun - Year End social 2015](https://photos.google.com/share/AF1QipN46uVWdgaMOrTrAI5YdeMIqzkfCR1XPO1AMIIUVQPME2bV7geBMn3Pu_tNOAB2tA?key=Y1pYbnltXzVjWm5oby1mbEt6UnRFVGFER2JVTjZn)
+- [2014 - Jun - End Year Social](https://photos.google.com/share/AF1QipNkMvCdHZVVhdxRdnMjW_9SUzucSoy0MBq03p1lUBUicsza2ZOD-hETI6_N-Gmgyg?key=YXI1bVRETU9HazNLOEtwTVVIaExyNFNkRGJfX2xn)
+- [2014 - Jun - Garge Sale](https://photos.google.com/share/AF1QipPJiWrVGXkTLCAtxGf2VPcyy16cAoGhVema-zInT3xbsNoWAzSkNfVL0HY-xhlPcg?key=Wkd3RFlyUHl3ZFJiOFhhQ1l6MHBNb1lmNWUwam9R)
+- [2014 - Mar - Pancake Breakfast](https://photos.google.com/share/AF1QipP7dQG6Sf5aMQYyADeTzXJLTd4A6qKBCQYGnmPtZL0aCLrfhXk3vg_6awfuYZgrgw?key=bjd4WVFJdTI0ZlZ1NmxHSWw0YldTUFJLcDF1d1Bn)
+- [2013 - Nov - Rememberance Day](https://photos.google.com/share/AF1QipNu6DD6W8McGw35EogromQYINFMP0ib0SfX9c32B0FUApIa81vxq030o-RxPzArhQ?key=NHQ1QzBqX3RrejIwOGozXzY5dk8zSHJNb0lTZEhn)
+- [2013 - Oct - Regional Soccer Competition](https://photos.google.com/share/AF1QipOY4PuZQXi-H4Ios_ibxJ1ViN41LnXyZ9wXm_Dkzfr94p-tLRiM6ZoK8bK1Dlo3Ug?key=VUx6VkNsNEt1NlNwd2M1ZDNFdnpFcXlScTFKb2NR)
+- [2013 - Sep - Special Olympics Bottle Drive](https://photos.google.com/share/AF1QipO7wj0APbRDymUswDwJEIJ6JR1XGfQKmanFCNJF6beQazSyCBsE96S-Jp2gbc-rtw?key=dEFVUHBBN0dLOXhkTG02eWRWWk5fYkc1U0FKbTJn)
+- [2013 - Sep - Installation of Officers](https://photos.google.com/share/AF1QipP1Fm8B0QfZWH0oBM3c2E-xhzpRawQE5kY06tCJ5jz5c6qm7Z4qHM_ZGx3vxbVD5Q?key=S28ydnVldGxCNkJUSHk4S1lhTUpXSWl6cGFOYXJR)
+- [2013 - Jun - End of Year BBQ](https://photos.google.com/share/AF1QipMHC_Oa2JjMIUTQqMa62ZwHhJywWOm7l5Y7nlhFhoas7ZDU6JhJeZ07PzdpYPT6Yg?key=d0hydDh3NWlpTFVNT0ctcDlvaXd4dVFmWHh4WnVn)
+- [2013 - Jun - Mtg](https://photos.google.com/share/AF1QipNFCu5ojjuMyRjRLWtnhR9VR6bybeckbYrkxWX0DPJWipfGDA60Va_ZweMB3BT7ow?key=a2htOXhtdnhhWW9ReGVyQi1kQXdLTlRHdDhoMUNn)
+- [2013 - Feb - Basketball Free Throw](https://photos.google.com/share/AF1QipN0H13xIMX8DTHaxBJ43Ad8L17016Emrh4DizJ9RhW_XZTX9exMTV6XrZiLeRk0Kg?key=Ylo1dHFWUkYxNmpFQWFNMTJuRmZwaEJqSWtUVzlB)
+- [2013 - Feb - Pancake Breakfast](https://photos.google.com/share/AF1QipPM2en6Q5Oq0I9u1nHTWAMA-G8V5aRMPVO0JwGhK_eHRlkR0q-9qQ-1znpjoLXhMw?key=cENLVTJVSHFxclJOYUE5MGZPOW1QbmxmTWxZMFJ3)
+- [2012 - Feb - Pancake Breakfast](https://photos.google.com/share/AF1QipNk0WKDEkJcbGjuYQYBbVaevwBMkn_x9Ad40nIEc19XM3t5A6CyvWcGG7WtCTcnmg?key=MHBNMUJXVGNXa2xramxIZXJpRk1OZDVMS0JqYkxB)
+- [2011 - Nov - 15th Anniversary](https://photos.google.com/share/AF1QipNWGrEzS8wyQ3qAQsgPr5Lxi_c_e63a4GlCt9ZOqj3MJpC0awMTBbBN4BiOy1WayQ?key=NEtUZXNub3lCQUFrT2ZkaFRfM1FXamZVUnRQU3J3)
+- [2011 - Sep - Holy Family BBQ](https://photos.google.com/share/AF1QipN-hlB4LKsz2-tBHsYWYV4DXKIPNXPonGzstyVALM-5P033_HrEKwm3rALwIYn8lA?key=ZXVLZXlRcG8zZFVTampQME8yNWVXMGM3OHctMDJR)
+- [2011 - Sep - Soccer competition](https://photos.google.com/share/AF1QipPR2Y7YkyiZVS8LkCRNnEDmUPubTjZ7SSbPvxW1qfAAdBTJJ1caSPUmzojz9KMxRw?key=cktCQUtYUjliSmlob2V3bFlDbm5JYk1YQVhKUXlB)
+- [2011 - Aug - Summer Knights Event](https://photos.google.com/share/AF1QipN4VUwEkLr6hEJeMzldFqj9eKKGVmOk_awMSRz6GwB48ft3kHkLnk1OUjB91PNrag?key=SGwyR2VLU2xIbE5UZjVBMlNoOEdtUmtKamh2Q2t3)
+- [2011 - Jul - Knights Summer Event](https://photos.google.com/share/AF1QipOVss4fAqLRs5Q3cCK2-pvGBjZGF_IVHKaqXPSfLCln0MIjbOrEuBUPbacNR3heyw?key=cng1ZGVaVVpXRjlwZnZHRl9jWmlUNEEzdUQwUVJR)
+- [2011 - Jul - Mass to Honour fr Gillis](https://photos.google.com/share/AF1QipO6v317JUBsIH5NKaCiEj6XPzKKeIzsZ4He66w7ihJ4YOT5rbqDU8QS9P05npEDfg?key=djF3SU9kclpBc3R6Q0tpd0JwWElsU2xiOTR5bXFn)
+- [2011 - Jun - Visit to Councel 4177](https://photos.google.com/share/AF1QipNDTMO_HJbTCrNA9x0nS9C9A1wUYoErX7IVwvc1eCqWwnUfeMaZqsCEUhas7S9e1w?key=dDVXSFpQMnVjeGozWW1pTFU3U0dMU3Z0TTF2ZXZB)
+- [2011 - May - Parish Fair](https://photos.google.com/share/AF1QipPiUG9aAlvw0t3hGm47SPYEsCWrjmabGrRUzwUIwSlHQnEqRwFNIB00bc2CptpyhQ?key=R3RGQlB0LXFFSG0yV0VWM0hnUEIyUmxCNEVodVBB)
+- [2009 - Jun - End Year Social](https://photos.google.com/share/AF1QipNEVlrqVFcPfNVei88KyCrVRsdoj3wDOsYNvjXCqKW23_Bh1k1NAo6sHufgLJ7L4w?key=Y2x5bm44QUEtQzhRMlo4bXRrRjNvbGhQUEptUXFR)
+- [2009 - Mar - Regional BB Free Throw](https://photos.google.com/share/AF1QipMHSO3Cj8GGAtZR_pw6YVdgacAojphtAYtfB-JbMwUoLnMwpJVYFTr886Yavov09g?key=OHZPMXVaLUhCdENIbWR5Vk9lYVVfdkI3TXJNeE9B)
+- [2009 - Feb - Pancake Breakfast](https://photos.google.com/share/AF1QipMLo1OCZUNvyex98PZDMYrBXnfRuilSKQ0VZW7kbwgBUrBmw8DFufw_FH9XYkPiPg?key=VjY0TDlielEzdm9MU2h1aTFXNGZya29tOVpVTFVn)
+- [2008 - Jul - Fr Shea Farewell](https://photos.google.com/share/AF1QipNb__SIzRg_gVBdqNzhLHjsVI9yj_ze-ntzQLyGoIGPZd2BO_VsKourVVLFEAaN_w?key=RWdzZFZsRE1NOHRGZExYcXNCWU9Pd05zVjNONExB)
+- [2008 - Jun - Installation of Officers](https://photos.google.com/share/AF1QipMvgpIF1ZXYNsvTJZibdWKQnY-UrhA-k-ED2QXceKzz2IqGejzO_Gbw8yeHHqgVEg?key=RmVaNkV4aVNQZnRyUVZsRjhwMEVuQ2kxWmVUQTdn)
+- [2008 - May - Lady's Night](https://photos.google.com/share/AF1QipMOxLL5-hGxxp97l4nad0Hcax0SKihr5QELlDoVBO51NKULUutApx_jFklFHUWY3w?key=akdyRE9zS052VVdLemt6dnBVaC1DU0V6ODRyRi1R)
+- [2008 - Feb - Pancake Breakfast](https://photos.google.com/share/AF1QipMLdGnwSCZ56mztYY1RJnyY9YNuR3JeI26SGin-Wf0A3AeWD53RKGS9ffOsnDEX1g?key=c1FVeWM1Wi1GdE1kRkMtekIxOTBGaU1BTnZRc0x3)
+- [2007 - Jun - Installation of Officers](https://photos.google.com/share/AF1QipPcRiIT2nMVztautDZBAkk9vb1HIoOmg8oHRJiKZJXVWP2llTWuMPmu7cnppQaF5w?key=S3lMbjE1UW1helg3ZXE1TzBDSnNmYWJudllxZnNR)
+- [2007 - Jun - End Year BBQ](https://photos.google.com/share/AF1QipO3BSZPDgQApYDw0MEdyhvwO83d3od3jxvrIUc1OH0ELWPO6UyCZdElM_3z3VN5Xw?key=d0puWDdvcDJRbG9GT0o2VFRwNzhfX21tU09rQTdn)
+- [2007 - May - Lady's Night](https://photos.google.com/share/AF1QipMHGFWdL1yKEiWfytAXCHN2wuDXxvkAqeosXzAVr5wsBNq7220pkBrxJ1C86dvoVg?key=UFRxZHRwNDRweGFNdzNfa0lPc3c1NUx2cWVBQlJ3)
+- [2006 - Nov - 10th Anniversary](https://photos.google.com/share/AF1QipPs_aCJSQeX6o_tT-8WxuJzFkBTHRFoEuVOUNApGctIueJKTsNCmMegSxf-NGdN8w?key=cmkyLVdVYlVZOWZPZFJxYjM3Z2ZsZ1E4T2MzaVVB)
+- [2006 - Jun - End Year BBQ](https://photos.google.com/share/AF1QipOl90TuOSQhQy0_A8jekGvU3PbrRAObLrqTmaVrXKE_CKpJvCGfRZ3jgjWY0V6MaA?key=Z1BaY1FfYmdvVFV5S3hWVTRZTHVFcy1WNmtBN0tB)
+- [2006 - Mar - Second Degree](https://photos.google.com/share/AF1QipPEzi6J-c-Dpp5tGzFwznYc0CeKY4goe4q8kIkEs_CVQ3o7P4n4Cavi0oci9EhmPQ?key=Y2c1eGtuSUxmTGZPSjBrczRXM3o2ZVRPTS1kSXdn)

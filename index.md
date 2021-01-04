@@ -14,8 +14,6 @@ KoC principles are Charity, Faith, Fraternity and Patriotism. Our council pillar
 
 It will be conducted on jitsi. An email and telephone call confirming location will be made to all Knights of the council in the Kingston area about a week before the meeting date.  
 
-## Recuring Faith events
+## Providence Manor Appeal
 
-Join us in Family Rosary Prayers 8:30 A.M. SUNDAYS - 4:30 P.M SATURDAYS.  5.00 PM THURSDAYS at Holy Name of Jesus Parish.
-
-Eucharistic Adoration Our time spent with Christ in Adoration, can become the most profound,  meaningful, joyful, peaceful and healing experience we could ever encounter!  Join your fellow parishioners at weekly Eucharistic Adoration EVERY THURSDAY at 5:00 P.M. at Holy Name of Jesus Parish.
+See [here](/page_providence_manor_appeal.md) for how you can help build a supportive home for elderly and vulnerable residents

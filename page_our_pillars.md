@@ -20,6 +20,12 @@ on CFB Kingston south of Hwy 2
 
 [webpage](https://rcmilord-ordmilcr.com/kingston)
 
+### recuring faith events
+
+Join us in Family Rosary Prayers 8:30 A.M. SUNDAYS - 4:30 P.M SATURDAYS.  5.00 PM THURSDAYS at Holy Name of Jesus Parish.
+
+Eucharistic Adoration Our time spent with Christ in Adoration, can become the most profound,  meaningful, joyful, peaceful and healing experience we could ever encounter!  Join your fellow parishioners at weekly Eucharistic Adoration EVERY THURSDAY at 5:00 P.M. at Holy Name of Jesus Parish.
+
 ## Family
 
 Whether supporting less fortunate families, leading our families in faith, or just having some family fun, there are several programs available to engage Catholic men and their families. You are welcome to give us a test drive, helping hands always apprecitated.

@@ -4,7 +4,7 @@ description: Knights of Columbus - Kingston Mills
 layout: default
 ---
 
-# Faith
+## Faith
 
 Living our faith and celebrating others who live their Catholic Faith. Please see parish webpages for information on Mass times and receiving the Sacraments.
 
@@ -20,7 +20,7 @@ on CFB Kingston south of Hwy 2
 
 [webpage](https://rcmilord-ordmilcr.com/kingston)
 
-# Family
+## Family
 
 Whether supporting less fortunate families, leading our families in faith, or just having some family fun, there are several programs available to engage Catholic men and their families. You are welcome to give us a test drive, helping hands always apprecitated.
 
@@ -33,7 +33,7 @@ Ontario K of C established a bursary program to assist Knights and members of th
 
 Applications must be submitted by March 31 of the current year by the council in order to meet subsequent deadlines. Although the applicant’s marks are taken into consideration, many successful applicants are based on their need. The bursary recipients are announced by the end of June. See [here](https://ontariokofc.ca/programs/faith-in-action/community/bursary/) for the application form and additional details.
 
-# Community
+## Community
 
 Monthly volunteer food preparation and meal service at St Vincent de Paul
 
@@ -41,7 +41,7 @@ Blood Donations through the Canadian Blood Services, become a partner and donate
 
 KnightsDeals open to the entire community, First Come first serve,  Great Prices for Ottawa Redblacks, Ottawa Senator Games, TD Place Concerts and more. Visit the [Knightsdeals.ca](http://Knightsdeals.ca) for details.
 
-# Life
+## Life
 
 Celebrating life from conception to natural death
 

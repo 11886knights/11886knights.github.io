@@ -22,3 +22,6 @@ A committe member will visit any council/assembly to assist, train and support  
 Please contact us to open the discussion on how we can support you in making a worthy commitment of fundraising support over the next five years.
 
 The following resource material is available:
+[Pledge Form](/docs/providence_care_pledgeform.pdf)
+[Appeal Brochure](/docs/providence_care_2017_PMbrochure)
+[Appeal Presentation](/docs/providence_care_2017PMappeal)

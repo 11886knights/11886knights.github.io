@@ -17,3 +17,7 @@ It will be conducted on jitsi. An email and telephone call confirming location w
 ## Providence Manor Appeal
 
 See [here](/page_providence_manor_appeal.md) for how you can help build a supportive home for elderly and vulnerable residents
+
+## Knight Moves
+
+For the current edition, click [here](/docs/knight_moves/Dec20.pdf). For an archive of past editions, see the [here]()

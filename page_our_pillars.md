@@ -20,7 +20,7 @@ on CFB Kingston south of Hwy 2
 
 [webpage](https://rcmilord-ordmilcr.com/kingston)
 
-### recuring faith events
+**Recuring events**
 
 Join us in Family Rosary Prayers 8:30 A.M. SUNDAYS - 4:30 P.M SATURDAYS.  5.00 PM THURSDAYS at Holy Name of Jesus Parish.
 

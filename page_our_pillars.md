@@ -26,10 +26,10 @@ Whether supporting less fortunate families, leading our families in faith, or ju
 
 Ontario K of C established a bursary program to assist Knights and members of their families entering the first year of a post-secondary education.  Successful applicants are eligible a $1,000.00 Bursary. Applicants can be:
 
-    A member of the Knights of Columbus of Ontario in good standing.
-    The wife, son or daughter of a member in good standing.
-    The wife, son or daughter of a deceased member in good standing at the time of his death.
-    A grandchild who is the legal ward of a member in good standing. 
+- A member of the Knights of Columbus of Ontario in good standing.
+- The wife, son or daughter of a member in good standing.
+- The wife, son or daughter of a deceased member in good standing at the time of his death.
+- A grandchild who is the legal ward of a member in good standing. 
 
 Applications must be submitted by March 31 of the current year by the council in order to meet subsequent deadlines. Although the applicant’s marks are taken into consideration, many successful applicants are based on their need. The bursary recipients are announced by the end of June. See [here](https://ontariokofc.ca/programs/faith-in-action/community/bursary/) for the application form and additional details.
 

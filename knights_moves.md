@@ -1,8 +1,7 @@
 ---
 title: Knights Moves
+description: Knights of Columbus - Kingston Mills
 layout: default
 ---
-
-# Knights Moves
 
 This is the monthly update

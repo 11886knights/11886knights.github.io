@@ -1,6 +1,5 @@
 ---
 title: Knights Moves
-layout: default
 ---
 
 # Knights Moves

@@ -10,13 +10,9 @@ Knights of Columbus (KoC) Council 11886 consist of Catholic Men from Holy Name o
 
 KoC principles are Charity, Faith, Fraternity and Patriotism. Our council pillars are Faith, Family, Community and Life.
 
-## Next Meeting - Tuesday, 5 January
+## Next Meeting - Tuesday, 14 September
 
-It will be conducted on jitsi. An email and telephone call confirming location will be made to all Knights of the council in the Kingston area about a week before the meeting date.  
-
-## Providence Manor Appeal
-
-See [here](/page_providence_manor_appeal.md) for how you can help build a supportive home for elderly and vulnerable residents
+Have a great summer!
 
 ## Knight Moves
 

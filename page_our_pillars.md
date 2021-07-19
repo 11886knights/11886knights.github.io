@@ -41,14 +41,32 @@ Applications must be submitted by March 31 of the current year by the council in
 
 ## Community
 
-Monthly volunteer food preparation and meal service at St Vincent de Paul
+As Knights of Columbus, we are called to serve our family and our God. Our first principle is Charity, at home with our families in our communities. Our council has been involved in the following programs:
 
-Blood Donations through the Canadian Blood Services, become a partner and donate using KNIG009249
+1. Helping Hand Projects in the community such as Highway Clean up.
 
-KnightsDeals open to the entire community, First Come first serve,  Great Prices for Ottawa Redblacks, Ottawa Senator Games, TD Place Concerts and more. Visit the [Knightsdeals.ca](http://Knightsdeals.ca) for details.
+2. Free Throw Basketball.
+
+3.  Hockey Challenge. 
+
+4.  Soccer Challenges. 
+
+5.  Clothes for Kids.
+
+6.  Global Wheelchair Mission.
+
+7.   St Vincent de Paul Lunch food preparation and meal service at St Vincent de Paul Society.
+
+8.  Blood Donations through the Canadian Blood Services, become a partner and donate using KNIG009249.
 
 ## Life
 
-Celebrating life from conception to natural death
+Both as Knights of Columbus and as followers of Christ, “Catholics must be committed to the defense of life in all its stages and in every condition “(St. John Paull II, 1995). We participate in several Life Programs such as the following:
+
+1. Special Olympics fundraising for Track and Curling teams in Kingston.
+
+2. Novena for life. We normally two-three Novenas. Novenas are prayers made over a period of 9 days. 
+
+3. March for Life. 
 
 Consider watching [Fatal Flaws](https://fatalflawsfilm.com/) or [I Lived on Parker Avenue](https://www.youtube.com/watch?v=8pxu6DEPQkw) as excellent films on the topic of Life.

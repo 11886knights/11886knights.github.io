@@ -10,8 +10,6 @@ To help you learn more about the Knights of Columbus and our Catholic Faith you 
 
 [Knights of Columbus Ontario Website](https://ontariokofc.ca/)
 
-[Archdiocese of Kingston Diocesan Association of the Knights of Columbus](http://www.kdknights.ca/)
-
 [Archdiocese of Kingston](https://www.romancatholic.kingston.on.ca/)
 
 [Holy Name of Jesus](http://holyname.ca/index.html)

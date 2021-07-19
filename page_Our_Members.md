@@ -1,5 +1,5 @@
 ---
-title: Executive Members
+title: Our Members
 description: Knights of Columbus - Kingston Mills
 layout: default
 ---

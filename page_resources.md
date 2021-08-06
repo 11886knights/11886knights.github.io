@@ -17,3 +17,6 @@ To help you learn more about the Knights of Columbus and our Catholic Faith you 
 [St Paul the Apostle Council 9652](http://kofc9652.com/blog/)
 
 [St Joseph's Council 11670](http://kofc11670kingston.ca/)
+
+[Council 11886 Policies]()
+

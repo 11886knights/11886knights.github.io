@@ -9,19 +9,21 @@ layout: default
 - Chaplain --> Fr Wes Chockrek (613-546-0418)
 - Grand Knight --> Br Robert Charest (613-547-4731 // knights11886RC@gmail.com)
 - Past Grand Knight --> Br Jim Laudanski (613-544-9489 // birdie1jim@bell.net)
-- Deputy Grand Knight --> Br John Schell (613-539-8963 // john.schell@gmail.com)
+- Deputy Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter455@gmail.com)
 - Financial Secretary --> SK Philip Henderson, PGK FDD (613-544-7519 // philipchenderson@gmail.com)
 - Chancellor --> Br Mike Stenson (613-353-6956 // mikestenson@hotmail.com)
 - Advocate --> SK George Smith, PGK (613-531-6131 // george3smith2015@gmail.com)
 - Lecturer --> SK Gary Richards, PGK (613-547-5333 // garyr4033@gmail.com)
 - Recorder --> SK Guy Lahaie, PGK (613-545-9647 // hg.lahaie@gmail.com)
 - Treasurer --> Br Jean M Pellerin (613-542-8854 // jmpellerin1313@hotmail.com)
-- Warden --> Br Jean-Phillip Goulet (418-618-4688 // j-Phillipe@hotmail.com)
+- Warden --> Br Raymond Paquin (613-542-8854 // raypaq0@gmail.com)
 - Guard Inside --> Br Steve Bycok (c_sbycok@hotmail.com)
-- Guard Outside --> Br Jean-Phillipe Goulet (418-618-4688 // j-Phillipe@hotmail.com)
-- Trustee 1 --> SK Francois Bedard, PGK (613-549-0410 // paulineb1943@me.com)
-- Trustee 2 --> SK Pat Stenson, PGK (613-767-9710 // pat@kingstoncollision.ca)
-- Trustee 3 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
+- Guard Outside --> Br Mathieu Larose (mathieularose26@gmail.com)
+- Trustee 1 --> SK Pat Stenson, PGK (613-767-9710 // pat@kingstoncollision.ca)
+- Trustee 2 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
+- Trustee 3 --> Br Jim Laudanski, PGK (613-544-9489 // birdie1jim@bell.net)
+
+For recruitment see Grand Knight or one of thhe Trustees
 
 ## Past Grand Knights
 

@@ -6,9 +6,7 @@ layout: default
 
 **Supporting our Parish, our Community and other charitable activities**
 
-Its simple, buy a gift card and use as cash for those every day things: gas, groceries, clothing, dining, coffee, and more. You'll be spending the same money you would spend anyways while supporting a great cause. Between 2010-2019, profits from selling Gift cards provided $9K to Holy Name of Jesus, $10.6K for Knights of Columbus (K of C) charities and events, and $2.8K for Holy Family Chapel = Total $22.4K. What a difference!
-
-See our vendor [list](/docs/gift_card_retailers.pdf), and see the [impact](/docs/gift_card_program_impact.pdf)!
+Its simple, buy a gift card and use as cash for those every day things: gas, groceries, clothing, dining, coffee, and more. You'll be spending the same money you would spend anyways while supporting a great cause. Between 2010-2020, profits from selling Gift cards provided $10.1K to Holy Name of Jesus, $10.1K for Knights of Columbus (K of C) charities and events, and $3.2K for Holy Family Chapel = Total $23.4K. What a difference!
 
 Two ways to get your gift cards:
 
@@ -23,3 +21,9 @@ Cheques should be made payable to
 *Periodic Movers - some in stock: Marks Work Warehouse, Walmart, Amazon, Shoppers Drug Mart,Chapters/Indigo, Red Lobster, Boston Pizza, Subway, M&M, Starbucks, Pizza Pizza, Home Sense/Winners/Marshalls, Keg, Home Depot, Lowes, Rona, Home Hardware, itunes, cineplex, bodynbath, Irving Gas, McDonalds, A&W, Giant Tiger,Land Mark Theatres, LCBO*
 
 For other vendors not listed, please plan for a 2 week delay
+
+## ECards
+
+For a flexible and convenient option purchase electronic gift cards [here](https://group.fundscrip.com/en/JQMHYU/all-activities). Account creation required.
+
+Ecard inventory includes Startbucks, Itunes, Best Buy, Amazon, Old Navy, Gap, Boston Pizza, Cineplex, Hudson Bay, Dollarama, Walmart, Esso/Mobil, and the Ultimate Dining Card of 16 restaurants.

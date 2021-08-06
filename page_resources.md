@@ -18,5 +18,5 @@ To help you learn more about the Knights of Columbus and our Catholic Faith you 
 
 [St Joseph's Council 11670](http://kofc11670kingston.ca/)
 
-[Council 11886 Policies]()
+[Council 11886 Policies](https://github.com/11886knights/11886knights.github.io/blob/master/docs/COUNCIL%20POLICIES%202021%20V1.docx)
 

@@ -22,3 +22,6 @@ then go to [gofundme](https://gofundme.com) and search for "11886" to donate.
 
 It is a fundraiser for the construction of the new St. Vincent de Paul Society. At the time of printing of this edition we have raised $1041 and a pledge for 2.5K upon the start of construction. **Thank you Brothers Mike and Gary for promoting the event!**
 
+## Twitter
+
+Keep up to date with our activities on [Twitter](https://twitter.com/11886knights?lang=en)

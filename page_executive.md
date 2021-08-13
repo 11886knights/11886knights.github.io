@@ -23,7 +23,7 @@ layout: default
 - Trustee 2 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
 - Trustee 3 --> Br Jim Laudanski, PGK (613-544-9489 // birdie1jim@bell.net)
 
-For recruitment see Grand Knight or one of thhe Trustees
+For recruitment see Grand Knight or one of the Trustees
 
 ## Past Grand Knights
 
@@ -39,60 +39,3 @@ For recruitment see Grand Knight or one of thhe Trustees
 - 2013-2015 - Sir Knight Jean J Pellerin
 - 2015-2017- Sir Knight George "Scotty" Smith
 - 2017-2019 - Brother Jim Laudanski
-
-## Chartered Members
-
-- Rev Richard Whalen
-- Stephen Adamson
-- Mark Amodeo
-- Perry Bolton
-- Peter Boyle
-- Basil Brosso
-- Robert Bryan
-- George Caron
-- Gabriel Dallaire
-- Roy Gould
-- Mark Halladay
-- Desmond Hensman
-- Lawrence Kennedy
-- Lloyd Kirkham
-- Rafal Kwiatkowski
-- Doug Kuzzell
-- Guy Lahaie
-- James Laudanski
-- Roger Levac
-- Daniel Lewis
-- Philip Lewis
-- Ivan marche
-- Paul Miller
-- Pat Murray
-- Patrick O'Connor
-- Oludaydoe Oketunde
-- Ken Olivier
-- Gary Richards
-- James Stenson
-- Joseph Stenson
-- Mike Stenson
-- Patrick Stenson
-- Tom Stenson
-- Christopher Thurgood
-- Gaetan Vallerand
-- Clyde Wagner
-- William Walker
-
-## Deceased Members
-
-- James Stenson
-- Tom Stenson
-- Robert Dundon
-- Pat Sheehan
-- Andre Deraps
-- Ron Arsenault
-- Phil Marshall
-- Fr George Savoie
-- William Walker. PGK
-- Herman Veenendaal
-- Ray Croxford
-- Wayne Murray
-- J Don Clark
-- Stan Pietak

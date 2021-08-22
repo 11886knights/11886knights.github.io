@@ -24,6 +24,6 @@ For other vendors not listed, please plan for a 2 week delay
 
 ## ECards
 
-For a flexible and convenient option purchase electronic gift cards [here](https://group.fundscrip.com/en/JQMHYU/all-activities). Account creation required.
+For a flexible and convenient option purchase electronic gift cards here: <https://group.fundscrip.com/en/JQMHYU/all-activities> then click 'Support'. Account creation required.
 
 Ecard inventory includes Startbucks, Itunes, Best Buy, Amazon, Old Navy, Gap, Boston Pizza, Cineplex, Hudson Bay, Dollarama, Walmart, Esso/Mobil, and the Ultimate Dining Card of 16 restaurants.

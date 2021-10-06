@@ -19,7 +19,7 @@ Join us on October 19th, at 7 PM for a talk titled **Into the Breach**
 
 Father Burke Masters says that the *difference between men and boys* is that boys are concerned about themselves, while men are concerned about others. *Boys can become men in the company of men.*
 
-[Click here to learn more](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Into the breach-flyer2.docx)
+[Click here to learn more](https://github.com/11886knights/11886knights.github.io/raw/master/docs/into-the-breach-flyer2.docx)
 
 ## Twitter
 

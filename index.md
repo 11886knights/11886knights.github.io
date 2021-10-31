@@ -12,10 +12,9 @@ KoC principles are Charity, Faith, Fraternity and Patriotism. Our council pillar
 
 ## Next Meeting - Tuesday,12 October 
 
-
 ## Intro the Breach
 
-Join us on October 19th, at 7 PM for a talk titled **Into the Breach**
+Join us on January 19th, at 7 PM for a talk titled **Into the Breach**
 
 Father Burke Masters says that the *difference between men and boys* is that boys are concerned about themselves, while men are concerned about others. *Boys can become men in the company of men.*
 

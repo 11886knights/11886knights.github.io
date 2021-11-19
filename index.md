@@ -10,15 +10,11 @@ Knights of Columbus (KoC) Council 11886 consist of Catholic Men from Holy Name o
 
 KoC principles are Charity, Faith, Fraternity and Patriotism. Our council pillars are Faith, Family, Community and Life.
 
-## Next Meeting - Tuesday,12 October 
+## Next Meeting - 2nd Tuesday of each month 7-8 PM
 
-## Intro the Breach
+## Join our 50/50 draw each quarter!
 
-Join us on January 19th, at 7 PM for a talk titled **Into the Breach**
-
-Father Burke Masters says that the *difference between men and boys* is that boys are concerned about themselves, while men are concerned about others. *Boys can become men in the company of men.*
-
-[Click here to learn more](https://github.com/11886knights/11886knights.github.io/raw/master/docs/into-the-breach-flyer2.docx)
+The next draw is December 31st. [See this poster for more details](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_Dec_31_draw.pdf)
 
 ## Twitter
 

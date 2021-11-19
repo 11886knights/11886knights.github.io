@@ -14,10 +14,10 @@ Assisting the sick and disabled. Protecting those who can’t protect themselves
 
 We do it to be better husbands, fathers, sons, neighbours, and Catholics. We invest our time into our values:
 
-    - Charity
-    - Unity
-    - Fraternity
-    - Patriotism
+- Charity
+- Unity
+- Fraternity
+- Patriotism
 
 We come from many places, backgrounds and stages in our lives. A fraternity of men striving to better themselves and our world.
 

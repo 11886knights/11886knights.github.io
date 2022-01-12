@@ -25,6 +25,10 @@ It’s one thing to say who you are. It’s another to live it. Put your values 
 
 ## Next Meeting - 2nd Tuesday of each month 7-8 PM
 
+## Monthly Projects
+
+For an overview of what the concil has been up to last month click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/monthly_projects/2021/12-Dec21.pdf), and for an archive of past council updates see [here](https://github.com/11886knights/11886knights.github.io/tree/master/docs/monthly_projects). 
+
 ## Join our 50/50 draw each quarter!
 
 The next draw is March 31st. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_Mar_31_draw.pdf)

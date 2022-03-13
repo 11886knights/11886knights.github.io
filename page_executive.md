@@ -9,7 +9,7 @@ layout: default
 - Chaplain --> Fr Wes Chockrek (613-546-0418)
 - Grand Knight --> Br Robert Charest (613-547-4731 // knights11886RC@gmail.com)
 - Past Grand Knight --> Br Jim Laudanski (613-544-9489 // birdie1jim@bell.net)
-- Deputy Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter455@gmail.com)
+- Deputy Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter45@gmail.com)
 - Financial Secretary --> SK Philip Henderson, PGK FDD (613-544-7519 // philipchenderson@gmail.com)
 - Chancellor --> Br Mike Stenson (613-353-6956 // mikestenson@hotmail.com)
 - Advocate --> SK George Smith, PGK (613-531-6131 // george3smith2015@gmail.com)

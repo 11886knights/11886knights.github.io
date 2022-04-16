@@ -31,7 +31,7 @@ For an overview of what the council has been up to last month click [here](https
 
 ## Join our 50/50 draw each quarter!
 
-The next draw is March 31st. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_Jun_30_draw.pdf)
+The next draw is June 30th. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_Jun_30_draw.pdf)
 
 ## Twitter
 

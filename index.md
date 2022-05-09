@@ -27,7 +27,7 @@ It’s one thing to say who you are. It’s another to live it. Put your values 
 
 ## Monthly Projects
 
-For an overview of what the council has been up to last month click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/monthly_projects/2022/03-Mar22.pdf), and for an archive of past council updates see [here](https://github.com/11886knights/11886knights.github.io/tree/master/docs/monthly_projects). 
+For an overview of what the council has been up to click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/monthly_projects/2022/03-Mar22.pdf), and for an archive of past council updates see [here](https://github.com/11886knights/11886knights.github.io/tree/master/docs/monthly_projects). 
 
 ## Join our 50/50 draw each quarter!
 

@@ -60,3 +60,5 @@ layout: default
 - Wayne Murray
 - J Don Clark
 - Stan Pietak
+- Basil Brosso 
+- Roy Gould 

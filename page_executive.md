@@ -7,21 +7,21 @@ layout: default
 ## Executive
 
 - Chaplain --> Fr Wes Chockrek (613-546-0418)
-- Grand Knight --> Br Robert Charest (613-547-4731 // knights11886RC@gmail.com)
-- Past Grand Knight --> Br Jim Laudanski (613-544-9489 // birdie1jim@bell.net)
-- Deputy Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter45@gmail.com)
+- Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter45@hotmail.com)
+- Past Grand Knight --> Br Robert Charest, PGK (613-547-4731 // robertcharest84@gmail.com)
+- Deputy Grand Knight --> Br David Ringrose (613-549-4607 // ringrose06@gmail.com)
 - Financial Secretary --> SK Philip Henderson, PGK FDD (613-544-7519 // philipchenderson@gmail.com)
 - Chancellor --> Br Mike Stenson (613-353-6956 // mikestenson@hotmail.com)
 - Advocate --> SK George Smith, PGK (613-531-6131 // george3smith2015@gmail.com)
 - Lecturer --> SK Gary Richards, PGK (613-547-5333 // garyr4033@gmail.com)
-- Recorder --> SK Guy Lahaie, PGK (613-545-9647 // hg.lahaie@gmail.com)
+- Recorder --> Br Robert Charest, PGK (613-547-4731 // robertcharest84@gmail.com)
 - Treasurer --> Br Jean M Pellerin (613-542-8854 // jmpellerin1313@hotmail.com)
-- Warden --> Br Raymond Paquin (613-542-8854 // raypaq0@gmail.com)
-- Guard Inside --> Br Steve Bycok (c_sbycok@hotmail.com)
-- Guard Outside --> Br Mathieu Larose (mathieularose26@gmail.com)
-- Trustee 1 --> SK Pat Stenson, PGK (613-767-9710 // pat@kingstoncollision.ca)
-- Trustee 2 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
-- Trustee 3 --> Br Jim Laudanski, PGK (613-544-9489 // birdie1jim@bell.net)
+- Warden --> Br Raymond Paquin (613-531-4879 // raypaq0@gmail.com)
+- Inside Guard --> Br Steve Bycok (c_sbycok@hotmail.com // C_sbycok@hotmail.com)
+- Outside Guard --> Br Patrick Jordan (613-382-4841 // cjpj1991@yahoo.com)
+- Trustee 1 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
+- Trustee 2 --> Br Jim Laudanski, PGK (613-544-9489 // birdie1jim@bell.net)
+- Trustee 3 --> Br Pat Murray (613-542-5729 // patmurrayhabsyanks@gmail.com)
 
 For recruitment see Grand Knight or one of the Trustees
 
@@ -39,3 +39,4 @@ For recruitment see Grand Knight or one of the Trustees
 - 2013-2015 - Sir Knight Jean J Pellerin
 - 2015-2017- Sir Knight George "Scotty" Smith
 - 2017-2019 - Brother Jim Laudanski
+- 2019-2022 - Brother Robert Charest

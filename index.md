@@ -31,7 +31,7 @@ For an overview of what the council has been up to click [here](https://github.c
 
 ## Join our 50/50 draw each quarter!
 
-The next draw is September 30th. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_Sep_30_draw.pdf)
+The next draw is December 31st. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_31_Dec__22_draw.pdf)
 
 ## Twitter
 

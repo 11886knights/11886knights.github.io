@@ -27,11 +27,11 @@ It’s one thing to say who you are. It’s another to live it. Put your values 
 
 ## Monthly Projects
 
-For an overview of what the council has been up to click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/monthly_projects/2022/05-May22.pdf), and for an archive of past council updates see [here](https://github.com/11886knights/11886knights.github.io/tree/master/docs/monthly_projects). 
+For an overview of what the council has been up to click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/monthly_projects/2022/05-May22.pdf), and for an archive of past council updates see [here](https://github.com/11886knights/11886knights.github.io/tree/master/docs/monthly_projects).
 
 ## Join our 50/50 draw each quarter!
 
-The next draw is December 31st. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_31_Dec__22_draw.pdf)
+The next draw is the 30th of March 2023. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_30_Mar_23_draw.pdf)
 
 ## Twitter
 

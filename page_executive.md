@@ -20,8 +20,8 @@ layout: default
 - Inside Guard --> Br Steve Bycok (c_sbycok@hotmail.com // C_sbycok@hotmail.com)
 - Outside Guard --> Br Patrick Jordan (613-382-4841 // cjpj1991@yahoo.com)
 - Trustee 1 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
-- Trustee 2 --> TBD
-- Trustee 3 --> Br Pat Murray (613-542-5729 // patmurrayhabsyanks@gmail.com)
+- Trustee 2 --> Br Pat Murray (613-542-5729 // patmurrayhabsyanks@gmail.com)
+- Trustee 3 --> Br Stephen Woods (343-333-3787 // swoods@kos.net)
 
 For recruitment see Grand Knight or one of the Trustees
 

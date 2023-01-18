@@ -31,7 +31,7 @@ For an overview of what the council has been up to click [here](https://github.c
 
 ## Join our 50/50 draw each quarter!
 
-The next draw is the 30th of March 2023. [See this poster for details on participating](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_30_Mar_23_draw.pdf)
+The next lottery will commence February 1st, 2023. Details forthcoming.
 
 ## Twitter
 

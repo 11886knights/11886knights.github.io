@@ -25,13 +25,13 @@ It’s one thing to say who you are. It’s another to live it. Put your values 
 
 ## Next Meeting - 2nd Tuesday of each month 7-8 PM
 
-## Monthly Projects
-
-For an overview of what the council has been up to click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/monthly_projects/2022/05-May22.pdf), and for an archive of past council updates see [here](https://github.com/11886knights/11886knights.github.io/tree/master/docs/monthly_projects).
-
 ## Join our 50/50 draw each quarter!
 
-The next lottery will commence February 1st, 2023. Details forthcoming.
+Ontario State conducts 50/50 raffles each quarter with a portion of ticket sales directed to our council. The last draw in December 2022 had a grand prize of over $16K!
+
+For more information click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_30_Apr_23_draw.pdf).
+
+To purchase tickets click [here](https://ontariokofcraffle.5050central.com/?olc=11886).
 
 ## Twitter
 

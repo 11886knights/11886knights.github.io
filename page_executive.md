@@ -7,7 +7,7 @@ layout: default
 ## Executive
 
 - Chaplain --> Fr Wes Chockrek (613-546-0418)
-- Grand Knight --> Br Jim Laudanski, PGK (613-544-9489 // jameslaudanski@gmail.com)
+- Grand Knight --> Br Jim Laudanski, PGK (613-531-4319 // jameslaudanski@gmail.com)
 - Past Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter45@hotmail.com)
 - Deputy Grand Knight --> Br Pat Stenson (613-544-7108 // patstenson1955@gmail.com)
 - Financial Secretary --> SK Philip Henderson, PGK FDD (613-544-7519 // philipchenderson@gmail.com)

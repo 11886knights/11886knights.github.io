@@ -6,7 +6,7 @@ layout: default
 
 **Supporting our Parish, our Community and other charitable activities**
 
-Its simple, buy a gift card and use as cash for those every day things: gas, groceries, clothing, dining, coffee, and more. You'll be spending the same money you would spend anyways while supporting a great cause. Between 2010-2020, profits from selling Gift cards provided $10.1K to Holy Name of Jesus, $10.1K for Knights of Columbus (K of C) charities and events, and $3.2K for Holy Family Chapel = Total $23.4K. What a difference!
+Its simple, buy a gift card and use as cash for those every day things: gas, groceries, clothing, dining, coffee, and more. You'll be spending the same money you would spend anyways while supporting a great cause. Between 2010-2022, profits from selling Gift cards provided $12.5K to Holy Name of Jesus, $16.3K for Knights of Columbus (K of C) charities and events, and $3.8K for Holy Family Chapel = Total $32.6K. What a difference to our community!
 
 Two ways to get your gift cards:
 

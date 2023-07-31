@@ -25,14 +25,10 @@ It’s one thing to say who you are. It’s another to live it. Put your values 
 
 ## Next Meeting - 2nd Tuesday of each month 7-8 PM
 
-## Join our 50/50 draw each quarter!
+## Join our 50/50 draw twice a year!
 
-Ontario State conducts 50/50 raffles each quarter with a portion of ticket sales directed to our council. The last draw in December 2022 had a grand prize of over $16K!
+Ontario State conducts 50/50 raffles twice a year (1 Feb - 30 Apr and 1 Sep - 30 Nov) with a portion of ticket sales directed to our council. The last draw in April 2023 had a grand prize of over $16K!
 
 For more information click [here](https://github.com/11886knights/11886knights.github.io/raw/master/docs/Council_Raffle_30_Apr_23_draw.pdf).
 
 To purchase tickets click [here](https://ontariokofcraffle.5050central.com/?olc=11886).
-
-## Twitter
-
-Keep up to date with our activities on [Twitter](https://twitter.com/11886knights?lang=en)

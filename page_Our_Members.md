@@ -4,7 +4,7 @@ description: Knights of Columbus - Kingston Mills
 layout: default
 ---
 
-## Chartered Members
+## Our Chartered and Deceased Members
 
 - Rev Richard Whalen
 - Stephen Adamson
@@ -43,22 +43,15 @@ layout: default
 - Gaetan Vallerand
 - Clyde Wagner
 - William Walker
-
-## Deceased Members
-
-- James Stenson
-- Tom Stenson
 - Robert Dundon
 - Pat Sheehan
 - Andre Deraps
 - Ron Arsenault
 - Phil Marshall
 - Fr George Savoie
-- William Walker. PGK
 - Herman Veenendaal
 - Ray Croxford
 - Wayne Murray
 - J Don Clark
 - Stan Pietak
-- Basil Brosso 
-- Roy Gould 
+- Basil Brosso

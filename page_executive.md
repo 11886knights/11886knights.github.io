@@ -4,26 +4,26 @@ description: Knights of Columbus - Kingston Mills
 layout: default
 ---
 
-## Executive
+## Executive (Fraternal Year 2023-2024)
 
 - Chaplain --> Fr Wes Chockrek (613-546-0418)
-- Grand Knight --> Br Jim Laudanski, PGK (613-531-4319 // jameslaudanski@gmail.com)
-- Past Grand Knight --> Br Paul Coulter (613-331-5260 // pcoulter45@hotmail.com)
-- Deputy Grand Knight --> Br Pat Stenson (613-544-7108 // patstenson1955@gmail.com)
+- Grand Knight --> Br Pat Stenson (613-544-7108 // patstenson1955@gmail.com)
+- Past Grand Knight --> Br Jim Laudanski, PGK (613-531-4319 // jameslaudanski@gmail.com)
+- Deputy Grand Knight --> Br John Schell (613-589-3819 // john.schell8@gmail.com)
 - Financial Secretary --> SK Philip Henderson, PGK FDD (613-544-7519 // philipchenderson@gmail.com)
-- Chancellor --> Br Mike Stenson (613-353-6956 // mikestenson@hotmail.com)
-- Advocate --> SK George Smith, PGK (613-531-6131 // george3smith2015@gmail.com)
-- Lecturer --> TBD
-- Recorder --> Br Robert Charest, PGK (613-547-4731 // robertcharest84@gmail.com)
-- Treasurer --> Br Jean M Pellerin (613-542-8854 // jmpellerin1313@hotmail.com)
-- Warden --> Br Raymond Paquin (613-531-4879 // raypaq0@gmail.com)
-- Inside Guard --> Br Steve Bycok (c_sbycok@hotmail.com // C_sbycok@hotmail.com)
-- Outside Guard --> Br Patrick Jordan (613-382-4841 // cjpj1991@yahoo.com)
-- Trustee 1 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
-- Trustee 2 --> Br Pat Murray (613-542-5729 // patmurrayhabsyanks@gmail.com)
-- Trustee 3 --> Br Stephen Woods (343-333-3787 // swoods@kos.net)
+- Chancellor --> Br Mike Stenson
+- Advocate --> SK George Smith, PGK
+- Lecturer --> SK Gary Richards
+- Recorder --> Br Robert Bouvier
+- Treasurer --> Br Joe Stenson
+- Warden --> SK Raymond Paquin
+- Inside Guard --> Br Steve Bycok
+- Outside Guard --> Br Patrick Jordan
+- Trustee 1 --> Br Pat Murray (613-542-5729 // patmurrayhabsyanks@gmail.com)
+- Trustee 2 --> Br Stephen Woods (343-333-3787 // swoods@kos.net)
+- Trustee 3 --> Br Blair Macfie (613-353-7138 // blair.macfie@gmail.com)
 
-For recruitment see Grand Knight or one of the Trustees
+To join the council contact the Grand Knight or Deputy Grand Knight. Alternatively, you can join online right now at [www.kofc.org/joinus](www.kofc.org/joinus) and in the application indicate joining Council 11886 Holy Name of Jesus. You can be a member of another parish to join.
 
 ## Past Grand Knights
 
@@ -41,3 +41,4 @@ For recruitment see Grand Knight or one of the Trustees
 - 2017-2019 - Brother Jim Laudanski
 - 2019-2022 - Brother Robert Charest
 - Jul-Nov 2022 - Brother Paul Coulter
+- 2022-2023 - Brother Jim Laudanski

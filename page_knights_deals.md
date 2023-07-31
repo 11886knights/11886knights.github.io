@@ -6,6 +6,6 @@ layout: default
 
 Knights Deals looks for group rates and other event discounts in order to benefit Knights of Columbus members, family, Parish communities and those we support.
 
-Since June 2015 we have provided $83,300 savings for our 3496 participants to date. Funds dispursment to St Mary's Cathedral Restoration Appeal, Providence Manor Redevelopment Appeal and Holy Name Parish maintenance.
+Participants in Knights Deals receive savings on their purchases. Funds raised are disbursed to St Mary's Cathedral Restoration Appeal and Holy Name of Jesus Parish Maintenance.
 
 Go to [KnightsDeals.ca](http://knightsdeals.ca/) for the latest information
